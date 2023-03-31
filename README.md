@@ -1,0 +1,2 @@
+# KIMORE-CLOTHINGS
+Fashion designer 
